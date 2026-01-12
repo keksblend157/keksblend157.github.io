@@ -1,4 +1,4 @@
-# САп, я KeksBlend и Я оч ЛЮблЮ мУЗыКУ
+
 * [YouTube](https://www.youtube.com/@keksblend157)
 * [Telegram](https://t.me/kerksmic888)
 * [VK](https://vk.com/kerksmic888)
