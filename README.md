@@ -6,3 +6,5 @@
 * [Spotify](https://open.spotify.com/user/31a375cgtmhyzzbnnqbvj4zml6i4)
 * [отправить трек (ВК)](https://vk.com/aftershock1corpse)
 * [отправить трек (Гугл-формы)](https://forms.gle/1xxYmEXoHjAFpM897)
+* [сбор на ютуб-радио / просто поддержать](https://www.donationalerts.com/r/keksblend)
+
